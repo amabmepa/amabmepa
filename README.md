@@ -1,3 +1,6 @@
-# Day 27 workout
-## Hi, I`m AmirAbbas Mahdipanah ✌️
-🟢 I am a graphic designer with a strong passion for learning various skills within the field of graphic design. I am also actively exploring and developing my abilities in AI-based image creation.
+# Hi 👋  
+
+## I'm AmirAbbas Mahdipanah ✌️  
+
+🟢 A passionate graphic designer constantly learning new creative skills.  
+🎨 Currently exploring AI-driven image creation and expanding my visual design abilities.  
